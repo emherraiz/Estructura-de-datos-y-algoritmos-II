@@ -1,1 +1,0 @@
-# 3---Ejercicio-tipo-examen
